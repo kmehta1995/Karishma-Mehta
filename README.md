@@ -1,7 +1,7 @@
-A student at the Parsons school of design
+-A student at the Parsons school of design
 
-A Staretegic Design and Management major
+-A Staretegic Design and Management major
 
-Sudies industrial design at the Pratt Institute
+-Sudies industrial design at the Pratt Institute
 
-Would love to travel the world
+-Would love to travel the world
