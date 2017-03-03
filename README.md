@@ -2,6 +2,6 @@
 
 -A Staretegic Design and Management major
 
--Sudies industrial design at the Pratt Institute
+-Sudied Industrial Design at the Pratt Institute
 
 -Would love to travel the world
